@@ -42,5 +42,5 @@ Trabalho há mais de 20 anos no ambiente corporativo segmento saúde e atualment
 ### 📫 Contato Profissional
 
 *   **E-mail:** [andressamessiano012@gmail.com](mailto:dodolourenco@gmail.com)
-*   **LinkedIn:** [Seu_Link_Aqui](https://linkedin.com/andressasmessi)
+*   **LinkedIn:** [[Seu_Link_Aqui](https://www.linkedin.com/andressasmessi)](https://linkedin.com/)
 
